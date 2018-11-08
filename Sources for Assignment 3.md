@@ -13,3 +13,7 @@
 # Possibe Topic 2
 
 2. Another possible topic I'm considering is aging White-Tailed Deer using teeth analyses
+
+## Possible sources
+
+[https://search.proquest.com/docview/919424960/627A95F2AAF46C3PQ/2?accountid=130237]
